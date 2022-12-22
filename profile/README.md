@@ -4,7 +4,12 @@ author: "@YHWH"
 email: yhwh@meta.faith
 ---
 
+
+# [You are probably looking for something intelligible.](https://github.com/metafaith/.github#readme) 
+
 ## [Hi](https://support.twilio.com/hc/en-us/articles/223183008-Formatting-International-Phone-Numbers) [there](https://www.ancient-buddhist-texts.net/Textual-Studies/Grammar/Guide-to-Pali-Grammar.htm) 👋
+
+If not, follow the links on this page. Otherwise, Hello! 👋🏽👋👋🏾👋🏼👋🏿👋🏻👋👋
 
 ![GodInTheBeginningGIF](https://user-images.githubusercontent.com/59613197/208564208-1e85d151-e106-4acb-a268-0cd389d25b1c.gif)
 
