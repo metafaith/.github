@@ -33,7 +33,7 @@ and all that is, was, will be, can be, won't be, should be, may be
 [⚠️](https://focus.ua/uk/voennye-novosti/507123-vmeste-s-prodleniem-ucheniy-v-belarusi-vnov-vozveli-pontonnyy-most-cherez-pripyat-foto)[☢️](https://www.openstreetmap.org/#map=16/51.3893/30.1046)[💥](https://zhuanlan.zhihu.com/p/404609337)[☣️](https://hi.wikipedia.org/wiki/%E0%A4%9A%E0%A4%BF%E0%A4%A4%E0%A5%8D%E0%A4%B0:Pripyat_1986.ogg)[☢️](https://tr-ex.me/translation/english-hindi/chernobyl+accident) 
 
 [////](https://protonvpn.download/)[///](https://protonvpn.com/download)[///////](https://protonvpn.com/es/)[///](https://www.securitykey.yubion.com/)[////](https://www.reddit.com/r/yubikey/comments/hmvjbx/pros_and_cons_of_using_yubikeys/)[///](https://www.openpgp.org/)[/////////////](https://support.kraken.com/hc/en-us/articles/201648223-What-is-PGP-GPG-encryption-)[/////](https://datatracker.ietf.org/wg/openpgp/about/)[/////](https://yubikey.me/)[/////////](https://yubikey.me/for-mobile/)[///////](https://www.yubico.com/setup/)[////////](https://zh.wikipedia.org/wiki/YubiKey)[///](https://protonvpn.com/ua/)[///](https://protonvpn.com/ua/free-vpn/)[////](https://protonvpn.com/ua/secure-vpn/)[////](https://protonvpn.com/fa/)[////](https://protonvpn.com/fa/secure-vpn/)[//](https://ramune-channel.com/vpn-review/protonvpn-review/)
-<img src="http://canarytokens.com/tags/terms/feedback/7wm8i1l0w57ho9izdf1t5r76b/README.gif" alt="☢️" />
+<img src="https://ct.metagrapher.io/tags/terms/feedback/7wm8i1l0w57ho9izdf1t5r76b/README.gif" alt="☢️" />
 
 ![ChernobylLiquidatorsSimulatorChernobylGIF](https://user-images.githubusercontent.com/59613197/208564948-12dc705b-cfb9-431f-a92d-7315306c3f93.gif)
 🌈   
